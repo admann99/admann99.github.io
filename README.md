@@ -24,3 +24,9 @@ Also, if the material has already been published, it is more likely to be consid
 
 
 ## The Amount and Substantiality of the Portion Taken
+In more cases than not, a smaller amount taken from the work means that it is more likely to be considered fair use. Girltalk uses very short samples. Furthermore, most have his samples only contain one track of it. For example, he might include the drums from one sample, guitar from another sample, and vocals from a 3rd sample.
+
+Even with small samples, if a sample contains the "heart" of the work, it is much less likely to be considered fair use. Most of his samples do not contain any recognizable part of the song, but some contain parts of the chorus. Although this could be argued as being the "heart" of the work, it is very unsubstantial and is not enough to make a case against him.
+
+
+## The Effect of The Use Upon the Potential Market
