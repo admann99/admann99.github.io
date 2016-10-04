@@ -11,3 +11,16 @@ This has been cited as the primary factor to consider when evaluating if a case 
 
 > - Has the material you have taken from the original work been transformed by adding new expression or meaning?
 > - Was value added to the original by creating new information, new aesthetics, new insights, and understandings?
+
+The material from the original work has been transformed since layering several samples on top of each other adds new expression.
+
+The second case also appears to be satisfied. By meshing samples together, Girltalk creates an entirely new work of art, similar to a collage.
+
+
+## The Nature of The Copyrighted work
+This states that there is more leway to copy factual works than you do fiction. Obviously that doesn't apply to this case.
+
+Also, if the material has already been published, it is more likely to be considered fair use. That's because artists should be able to control when their work is released. Girltalk uses samples from songs that have already been released, so he does not violate this.
+
+
+## The Amount and Substantiality of the Portion Taken
